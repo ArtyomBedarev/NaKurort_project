@@ -1,0 +1,1 @@
+# NaKurort_project
